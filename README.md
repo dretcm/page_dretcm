@@ -2,3 +2,9 @@
 test for pages, etc.
 
 okokocokco
+
+guide basic:
+https://www.youtube.com/watch?v=QaxgF4v4hms
+
+honors:
+Fazt
